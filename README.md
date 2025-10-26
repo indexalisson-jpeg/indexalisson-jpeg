@@ -1,8 +1,8 @@
 # 👾 Alisson Ferreira
 
-**`Desenvolvedor Front-end e Designer Gráfico/UI/UX`**
+**`Estudante de Sistemas de Informação e Designer Gráfico/UI/UX`**
 
-Entusiasta da capacidade humana de se reinventar e criar o que é de sua necessidade. Compartilho, projetos, estudos e ideias sobre UI/UX e Design Gráfico e desenvolvimento front-end no Instagram "[indexalisson.jpeg](https://www.instagram.com/indexalisson.jpeg/)" e no TikTok "[indexalisson.jpeg](https://www.tiktok.com/@indexalisson.jpeg)"
+Entusiasta da capacidade humana de se reinventar e criar o que é de sua necessidade. Compartilho, projetos, estudos e ideias sobre UI/UX e Design Gráfico e minha jornada dentro da faculdade no Instagram "[indexalisson.jpeg](https://www.instagram.com/indexalisson.jpeg/)" e no TikTok "[indexalisson.jpeg](https://www.tiktok.com/@indexalisson.jpeg)"
 
 ---
 
