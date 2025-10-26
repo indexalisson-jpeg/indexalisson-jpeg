@@ -85,6 +85,7 @@ Entusiasta da capacidade humana de se reinventar e criar o que é de sua necessi
 
 <br/>
 
+<div align="center">
 <img src="https://raw.githubusercontent.com/platane/snk/output/github-contribution-grid-snake-dark.svg" align="center" height="" width="1000" />
 </div>  
   
