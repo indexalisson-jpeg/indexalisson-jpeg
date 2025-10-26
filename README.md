@@ -2,7 +2,7 @@
 
 **`Desenvolvedor Front-end e Designer Gráfico/UI/UX`**
 
-Me chamo Alisson Ferreira Tavares, tenho 20 anos. Concluí o ensino médio no 2CPMCHMJ. I share ideas, knowledge, and projects about UI/UX and Graphic Design,  also Front-end through social media on Instagram "[indexalisson.jpeg](https://www.instagram.com/indexalisson.jpeg/)" and on TikTok "[indexalisson.jpeg](https://www.tiktok.com/@indexalisson.jpeg)"
+Entusiasta da capacidade humana de se reinventar e criar o que é de sua necessidade. Compartilho, projetos, estudos e ideias sobre UI/UX e Design Gráfico e desenvolvimento front-end no Instagram "[indexalisson.jpeg](https://www.instagram.com/indexalisson.jpeg/)" e no TikTok "[indexalisson.jpeg](https://www.tiktok.com/@indexalisson.jpeg)"
 
 ---
 
